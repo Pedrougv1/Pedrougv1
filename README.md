@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pedrougv1
-- 👀 Building a startups and interested in tech and business
+- 👀 Building a startup and interested in tech and business
 - 💞️ I’m looking to collaborate on new projects
 - 📫 How to reach me: https://www.linkedin.com/in/pedrougarza/
 
